@@ -1,4 +1,4 @@
-### Olá!! eu sou a Cunha Thatiane👋
+### Olá!! Eu sou a Thatiane Cunha👋
 
 
 - 💻 Atualmente estou  estudando Full Stack Developer
